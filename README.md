@@ -1,7 +1,4 @@
-- 这里是@Polaris-321～
-
-关注@Hakuin123谢谢喵，关注@白隐Hakuin谢谢喵
-
+追番罗小黑战记谢谢喵，追番罗小黑战记谢谢喵～
 
 <!---
 Polaris-321/Polaris-321 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
